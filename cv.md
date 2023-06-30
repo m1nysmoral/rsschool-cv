@@ -1,1 +1,2 @@
-init: start youtube-task
+Eduard Palyanouski
+mail: m1nysmorall@gmail.com
