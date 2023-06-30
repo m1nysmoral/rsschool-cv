@@ -1,3 +1,3 @@
 Eduard Palyanouski
 mail: m1nysmorall@gmail.com
-numb 48697357896
+phone number 48697357896
